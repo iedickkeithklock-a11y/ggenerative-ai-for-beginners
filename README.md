@@ -1,0 +1,1 @@
+# ggenerative-ai-for-beginners
